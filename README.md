@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **AI, ML, Android**
 
-- 📫 How to reach me **vivek.rawat.student@outlook.com**
+- 📫 How to reach me **wait sometime**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
